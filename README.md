@@ -18,6 +18,6 @@
 
 </br>
 
->>>回复我们主角的亲密战友，个别积极为他开脱，疯狂推销小粉红的简中朋友：**https://github.com/MarionNoel/juzhanggongzi/issues/34**
+>>>回复我们主角的亲密战友，个别积极为他开脱，疯狂推销小粉红，恶性内卷反贼界，试图卷死所有反贼的简中朋友：**https://github.com/MarionNoel/juzhanggongzi/issues/34**
 
 >>>请注意，github润太祖账户实际所有者，“润学官方”repo创建者，是宪明之子，不是立党。虽然立党王欣然t号同名，本repo讨论，跟立党无关。特此声明防止搞混。
